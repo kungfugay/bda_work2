@@ -1,4 +1,4 @@
-![202002585-이미지-0](https://github.com/user-attachments/assets/e4146fb9-8ff2-4ad8-9b07-25bf152aa562)
+![202002585-이미지-0](https://github.com/user-attachments/assets/92e2a266-efce-4934-89ff-1c6826debb9c)
 ![202002585-이미지-1](https://github.com/user-attachments/assets/014356cb-50e1-4a0c-9112-4cdcf9a54752)
 ![202002585-이미지-2](https://github.com/user-attachments/assets/93e633f1-1dbb-4f85-af81-d3989881250d)
 ![202002585-이미지-3](https://github.com/user-attachments/assets/0cc02945-df33-4d41-87ff-931397cc86f5)
